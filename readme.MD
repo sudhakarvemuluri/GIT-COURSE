@@ -1,2 +1,0 @@
-"GIT COURSE" 
-"GIT COURSE" 
